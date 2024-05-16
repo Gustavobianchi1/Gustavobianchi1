@@ -1,16 +1,16 @@
-### Hi there 👋
+### Boas vindas ao meu perfil :
 
-<!--
-**Gustavobianchi1/Gustavobianchi1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome Gustavo roberto
+  
+-Estou estudando na Alura
+-Estou me desenvolvendo na linguagen JavaScript
+-Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-Here are some ideas to get you started:
+### você entrar em contato comigo 📧
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+00001116577355sp@al.educacao.sp.gov.br
+
+
+
+
+https://tenor.com/pt-BR/view/lr-agl-ssb-vegito-goku-vegeta-super-saiyan-blue-dokkan-battle-gif-5990843665144169682
