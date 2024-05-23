@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil :
+### Boas vindas ao meu perfil :🐱‍👤
 
 Meu nome Gustavo roberto
   
@@ -12,5 +12,5 @@ Meu nome Gustavo roberto
 
 
 
-
+![]()
 https://tenor.com/pt-BR/view/lr-agl-ssb-vegito-goku-vegeta-super-saiyan-blue-dokkan-battle-gif-5990843665144169682
